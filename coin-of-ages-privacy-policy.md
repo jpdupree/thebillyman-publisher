@@ -64,7 +64,7 @@ If we add features in future versions that involve data collection (such as opti
 
 If you have questions about this privacy policy, contact us at:
 
-**thebillyman@gmail.com**
+**info@thebillymangames.com**
 
 ---
 
